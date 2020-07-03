@@ -1,2 +1,2 @@
 # gcphone3
-Dy zeus pra
+Dy zeus para vc kkkkkkkkkkk
