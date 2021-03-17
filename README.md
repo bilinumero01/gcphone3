@@ -6,4 +6,4 @@ discord.gg/7qGcJUgVyD
 instagram
 twitter
 bank
-Dy zeus bolado
+
