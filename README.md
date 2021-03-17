@@ -1,8 +1,9 @@
-# gcphone3
-Dy zeus boladao para vc kkkkkkkkkkk
+# vrp_gcphone5
 
+NOSSA COMUNIDADE MAIS ANTIGA DO FIVEM 2016
 discord.gg/7qGcJUgVyD
 
-Bate papo
-
-so vem
+instagram
+twitter
+bank
+Dy zeus bolado
